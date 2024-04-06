@@ -5,9 +5,8 @@
 - 📫 How to reach me NOAMAV10612@gmail.com
 - 😄 Pronouns: male
 - ⚡ Fun fact: I have a the best mentallety anyone can lookfor, Im a beast with no
-- limits, people will say what it has to do with programmimg, well, everything, Im willing to learn, to develop my skills, to be the best, likewise to teach, to
-- help, to suggest, Im a freindly man, and I have high moral work, if i need to learn something in order to
-- complete it, I wont hesatite, Ill learn more than Ill need so Ill be the best.
+limits, people will say what it has to do with programmimg, well, everything, Im willing to learn, to develop my skills, to be the best, likewise to teach, to help, to suggest, Im a freindly man, and I have high moral work, if i need to learn something in order to
+complete it, I wont hesatite, Ill learn more than Ill need so Ill be the best.
 - 
 
 <!---
